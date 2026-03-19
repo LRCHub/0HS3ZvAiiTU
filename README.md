@@ -1,4 +1,4 @@
-# Mrs. GREEN APPLE – ブルーアンビエンス
+# Mrs. GREEN APPLE – ブルーアンビエンス（feat. asmi）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
